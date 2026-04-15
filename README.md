@@ -1,0 +1,1 @@
+# RTX-3060-videokartangizda-Llama-3-modelini-o-zbek-tiliga-moslashtirdim
